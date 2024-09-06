@@ -15,10 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-# Ry_Assignment_1
-Assignment_1_DataSci
+# Ry Lewis (she/they)
 
-Ry Lewis
 ![RyLewiPic2](https://github.com/user-attachments/assets/b0b3fde5-357d-41e5-b8f1-2009c76e0881)
 
 My major/program:
