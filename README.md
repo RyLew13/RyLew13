@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 # Ry Lewis (she/they)
 
-![RyLewiPic2](https://github.com/user-attachments/assets/b0b3fde5-357d-41e5-b8f1-2009c76e0881)
+![oof](https://github.com/user-attachments/assets/acdaa35c-d627-466a-af84-bbef48f5c425)
 
 My major/program:
 Psychology & Neuroscience PhD
