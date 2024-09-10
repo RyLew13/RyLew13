@@ -24,7 +24,7 @@ Psychology & Neuroscience PhD
 2nd year
 
 Why did I take this course:
-To fulfill my final Independent Study credit and catch me up to speed on analyzing neural data through this course
+To fulfill my final Independent Study credit and catch me up to speed on methods for analyzing neural data
 
 What got me in neuroscience/psychology:
 An existential obsession with how humans can have such complex thoughts and inner experiences out of a tiny gelatinous blob in our heads
