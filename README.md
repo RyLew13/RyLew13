@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 ![oof](https://github.com/user-attachments/assets/acdaa35c-d627-466a-af84-bbef48f5c425)
 
 My major/program:
-Psychology & Neuroscience PhD
+\nPsychology & Neuroscience PhD
 2nd year
 
 Why did I take this course:
