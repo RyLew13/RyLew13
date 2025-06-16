@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-# Ry Lewis (she/they)
+# Hope Lewis (she/they)
 
 ![oof](https://github.com/user-attachments/assets/acdaa35c-d627-466a-af84-bbef48f5c425)
 
